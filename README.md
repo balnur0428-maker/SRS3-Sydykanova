@@ -1,1 +1,0 @@
-# SRS5-Sydykanova
